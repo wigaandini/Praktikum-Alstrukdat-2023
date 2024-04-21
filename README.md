@@ -1,1 +1,4 @@
-# Praktikum-Alstrukdat-2023
+# Alstrokedeath </3
+
+13522053
+semoga membantu dan jangan stres :D
